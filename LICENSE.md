@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with elite grid trading bot for futures Tool | leverage-management + liquidity-provision, the #1 grid trading bot for futures. Includes leverage-management
 
 
 
